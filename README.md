@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sahilverma146
-- 👀 I’m interested in creating new codes 
+- 👀 I’m interested in creating something different 
 - 🌱 I’m currently learning web development 
 - 💞️ I’m looking to collaborating in making websites 
 - 📫 How to reach me by my mail sahilverma22146@gmail.com 
